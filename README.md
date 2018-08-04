@@ -1,1 +1,0 @@
-# YJH0924-github.io
